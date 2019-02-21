@@ -2,5 +2,5 @@
 
 
 Well Done!
-Strange additonal human that likes everything made of love.
+Strange additional human that likes everything made of love.
 
